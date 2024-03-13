@@ -6,3 +6,4 @@
 ##### En este mundo hay gente despreciable que puede hacer cosas muy mierda con tal informacion
 ###### Hazte un favor y abre tu cuenta desde incognito, buena suerte, acaba la carrera.
 ###### Y en caso de que leas esto el 14 de marzo feliz cumpleaños :))
+###### Mejora tu historia de youtube jajsjs
