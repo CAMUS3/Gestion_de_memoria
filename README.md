@@ -1,4 +1,3 @@
-# Gestion_de_memoria
 # Hola soy tu voz interior
 ## si alguna vez llegas a leer esto, quiero que sepas que eres una gran persona y un `hijueputa tonto`, sin ofender
 ### Pero no vuelvas a dejar tu cuenta de google abierta
